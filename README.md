@@ -1,4 +1,12 @@
-### Hi there 👋
+### 🌈⚡they/them pronouns ✨🌻
+#### you might find me...
+
+- 🐈 snuggling with the cat
+- 🧶 crocheting or weaving
+- 🍵 enjoying tea & chocolate
+- 🎶 playing the mountain dulcimer
+  
+
 
 <!--
 **mdearolf/mdearolf** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
